@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Ninoli666
+- 👀 I’m interested in Politic/Anime/Gaming/Photo/Journalism
